@@ -1,5 +1,3 @@
-### Hi there 👋
-
 itas109 < itas109@qq.com >
 
 大道至简 Road to Jane
